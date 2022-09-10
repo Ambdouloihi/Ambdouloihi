@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Ambdouloihi
+- 👀 I’m interested in  Computer science
+- 🌱 I’m currently learning IT at ESROI
